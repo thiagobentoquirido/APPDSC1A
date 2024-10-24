@@ -1,2 +1,2 @@
 # APPDSC1A
-By: Thiago araujo, caua galvao,matheus forin, charles oliveira e Bruno Romano
+By: Thiago abraao damasceno araujo, caua galvao franzin,matheus albieri forin, charles eduardo duarte de oliveira e Bruno Romano Kimura
